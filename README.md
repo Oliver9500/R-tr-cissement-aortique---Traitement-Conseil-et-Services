@@ -1,6 +1,5 @@
 # R-tr-cissement-aortique---Traitement-Conseil-et-Services
-Rétrécissement aortique - Traitement : Conseil et Services
-
+Healthcheckbox propose des services de classe mondiale et des traitements pour le rétrécissement aortique. Nous bénéficions de la confiance de nos clients potentiels. Nous offrons des services de consultation en ligne gratuits. Nos services sont proposés à des prix abordables.
 
 Link:https://healthcheckbox.com/fr/cardiology/aortic-stenosis-treatment/
 
