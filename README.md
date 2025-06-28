@@ -1,5 +1,7 @@
 # R-tr-cissement-aortique---Traitement-Conseil-et-Services
 Rétrécissement aortique - Traitement : Conseil et Services
+
+
 Link:https://healthcheckbox.com/fr/cardiology/aortic-stenosis-treatment/
 
 #Santé #Rétrécissement aortique - Traitement
